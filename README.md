@@ -31,6 +31,6 @@ Agile, cross-functional team player with a proven ability to collaborate across 
 ---
 
 ### ⚡ Fun Fact
-Climbing mountains 🏔️ and tackling data 📊, one peak at a time
+Climbing mountains 🏔️ and tackling data 📈, one peak at a time
   
   
